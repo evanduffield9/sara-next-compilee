@@ -1,5 +1,11 @@
+current
+
+stage
+
+connect
+
 self
-    ai 
+    ai current stage
 
 ai 
   widgit power it self current stage connect team member ai script new copy it str  copy
