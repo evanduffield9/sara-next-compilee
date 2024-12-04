@@ -1,6 +1,6 @@
 current city
 
-phase something
+phase something ifconfig
 
 es
   no il il = game ( current, ai 
@@ -11,7 +11,7 @@ no il
 no   argee  
 
 argee 
-     tick 
+     tick  config
 
 strong
 
@@ -27,3 +27,9 @@ strong tower
  ca         then
  ca             then
 then                
+
+'tower 
+
+
+if 
+  castle 
