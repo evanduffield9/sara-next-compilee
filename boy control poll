@@ -1,4 +1,9 @@
 ip 
+  config
+
+restart
+
+poll
 
 the        beach 
 
