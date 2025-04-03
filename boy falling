@@ -14,3 +14,8 @@ to demo
                        compile 
 
                        compile
+
+fit
+    compile 
+
+thin
