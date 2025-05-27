@@ -1,10 +1,20 @@
 netflix
 
+![305659119-0bc742e9-0682-4d96-819f-f927ef318ad8-1](https://github.com/user-attachments/assets/5666ed5f-3bab-4158-aa36-69df72dc4bbb)
+
+
 though
+
+![555cfa4fafae-penelope-cruz-big-hair-t](https://github.com/user-attachments/assets/674ec4ed-7dc3-422e-b94e-3b43d4fd3d7b)
+
 
 girl
 
-temple knight 
+![emotional-hispanic-girl-crying-front-600nw-2141380895 copy](https://github.com/user-attachments/assets/ba087d0b-24b3-4042-b958-505f3f1fb9c2)
+
+
+temple knight ![1000_F_532689502_gPbqpi44hfYfdMfTRIe2IgLBbZ1pZbJA](https://github.com/user-attachments/assets/f3338fac-2eb1-4c83-a5c6-78e514eacf87)
+
 
 becoming girk girl 
                    th eit noa nsdg nip naisgd pinopan isgn iopap niopin oainp opin oanip o inpoain opi naopi nop inopai npoa inop inopp ino
